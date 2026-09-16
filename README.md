@@ -1,2 +1,2 @@
 # tooomuchtosay.github.io
-is this a bad idea
+Quotes coming soon, I promise it won't be inappropriate!
